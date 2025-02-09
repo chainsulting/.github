@@ -1,4 +1,4 @@
-## Chainsulting has rebranding to softstack.io 
+## Chainsulting has rebranded to softstack.io 
 
 
 
